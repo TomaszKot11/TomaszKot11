@@ -1,1 +1,1 @@
-Ruby on Rails Developer, Tech enthusiast
+Ruby on Rails Developer, Cybersecurity engineer wannabe
